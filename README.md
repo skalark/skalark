@@ -1,13 +1,14 @@
 I create programs and games in my free time.
 
-
 🚀 [Portfolio](https://skalark.github.io/portfolio/index.html)
 
 💻 [GitHub](https://github.com/skalark)
 
+&nbsp;
 
 ⚡️ SplitRun - Coming Soon
 
+&nbsp;
 
 🖤 [Patreon](https://www.patreon.com/skalark)
 
