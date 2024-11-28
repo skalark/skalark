@@ -29,7 +29,3 @@ I create programs and games in my free time.
 ⚫️ [X](https://x.com/skalarkkk)
 
 🟠 [Reddit](https://www.reddit.com/user/skalark/)
-
-🟠 Reddit Server - Coming Soon
-
-🟣 Discord Server - Coming Soon
